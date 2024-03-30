@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @KittyInSpaxe
+- Learning Code
+- looking for new challenges
